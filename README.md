@@ -49,7 +49,7 @@
 
 ## 📫 Connect With Me
 - 📧 Email: vanshchoudhary20020@gmail.com
-- 💼 LinkedIn: (Add your LinkedIn link here)
+- 💼 LinkedIn: (https://www.linkedin.com/in/vansh-choudharyy/)
 
 ---
 
